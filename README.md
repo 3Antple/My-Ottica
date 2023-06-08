@@ -1,2 +1,0 @@
-# My-Ottica
-for help
